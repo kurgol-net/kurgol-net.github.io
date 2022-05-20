@@ -1,4 +1,4 @@
 # Welcome to Kurgol.net
 
 ## Who am I?
-GitHub support & Lave Radio crew. LARPer, Gamer. Anxious. Dyslexic. My views are my own (he/him).
+GitHub support. Anxious. Dyslexic. My views are my own (he/him).
